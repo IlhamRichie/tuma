@@ -1,0 +1,1 @@
+# tumabot-mini-setting
